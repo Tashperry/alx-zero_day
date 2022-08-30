@@ -1,1 +1,1 @@
-My second commit edit
+I'm excited to be a programmer 
