@@ -1,2 +1,2 @@
-This work is challenging but it's fine
-I'll get through it 
+I've edited this a lot
+Bare with me
